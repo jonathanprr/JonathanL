@@ -1,2 +1,2 @@
-# JonathanLeePadillaGonzalez
+# JonathanL
 Portafolio de mis trabajos 
